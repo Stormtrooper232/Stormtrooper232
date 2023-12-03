@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Stormtrooper232
+- 👋 Hi
 - 📫 Email me if u want smthn
 
 
 contact:
-- stormtrooper23221@gmail.com
+- ExcitedOtter557@gmail.com
 
