@@ -3,7 +3,7 @@
 My name is **Daniel**, <br>
 I have the username **stormtrooper232** <br>
 I write **code** <br>
-I don't really use **github** 🤷‍♂️
+I don't frequently use **github** 🤷‍♂️
 
 
 I like **Computer Science** 🧮 <br>
