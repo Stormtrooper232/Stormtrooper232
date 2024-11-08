@@ -6,7 +6,7 @@ I write **code** <br>
 I don't really use **github** 🤷‍♂️
 
 
-I really like **Computer Science** 🧮 <br>
+I like **Computer Science** 🧮 <br>
 I also like **programming** 👨‍💻 <br>
 
 **email:** _stormtrooper23221@gmail.com_
